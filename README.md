@@ -1,1 +1,0 @@
-# warizheritage.com
